@@ -1,6 +1,6 @@
 # Abakorich
 
-👋 Hi, I’m @Abakorich
+👋 Hi, I’m Serguei Abakorich
 
 👀 I’m interested in : FOLLOWING EDSULLY
 
@@ -11,5 +11,3 @@
 📫 How to reach me : DON'T
 
 😄 Pronouns: YES
-
-⚡ Fun fact: My first name is the same as that of the president's father born in Калиновка
